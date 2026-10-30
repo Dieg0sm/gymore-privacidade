@@ -1,0 +1,1 @@
+# gymore-privacidade
